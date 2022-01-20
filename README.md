@@ -1,1 +1,0 @@
-# lifedogs.github.io
